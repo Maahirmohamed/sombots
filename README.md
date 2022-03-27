@@ -1,0 +1,2 @@
+# sombots
+SOMALI SOM BAA LEJ
